@@ -52,7 +52,7 @@
 ## 📫 Connect With Me
 
 - LinkedIn: www.linkedin.com/in/YOUR_LINKEDIN
-- Email: your-email@example.com
+- Email: sovanmakarapov@gmail.com
 
 ---
 
