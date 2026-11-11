@@ -1,7 +1,7 @@
 # Hi there 👋, I'm Sovanmakara
 
-🎓 ICT & TESOL Student at PSU International College  
-☁️ Cloud Computing Enthusiast  
+🎓 Creative Media and Digital Technologies Student at PSU International College  
+☁️Cloud Computing Enthusiast  
 💻 Web Developer & Tech Learner  
 🌏 From Cambodia, currently studying in Thailand
 
